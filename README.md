@@ -1,4 +1,4 @@
-### Olá! Me chamo Barbara Santos.
+### Olá! Me chamo Barbara Vitori, prazer!!
 
 - 👩‍💻 Análise e Desenvolvimento de Sistemas.
 - 👱 19 anos.
