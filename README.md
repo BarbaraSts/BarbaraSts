@@ -1,4 +1,4 @@
-### Olá! Me chamo Barbara Vitori, prazer!!
+### Olá! Me chamo Barbara Vitoria, prazer!!
 
 - 👩‍💻 Análise e Desenvolvimento de Sistemas.
 - 👱 19 anos.
